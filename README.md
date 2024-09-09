@@ -2,7 +2,7 @@
 - 👀 I’m interested in all things AI ai Ai aI AI! ✨
 - 🌱 I’m currently learning AI ai Ai aI AI! ✨
 - 💞️ I’m looking to collaborate on AI ai Ai aI AI! ✨
-- 📫 How to reach me michaelcutler@sc.com
+- 📫 How to reach me michaelcutler [at] sc [dot] com
 - 😄 Pronouns: Ai/Ais
 - ⚡ Fun fact: How does a generative AI model relax? It takes a deep learning breath.
 
